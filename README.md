@@ -13,6 +13,10 @@ Personality / If you approach me : I'll try to match your humor as much as possi
 my preferred pronouns are they/them/he/him/xe/xem ! although you can go with any BUT any female. [Non-binary/Genderfluid + Demiboy]
 Pansexsual / Polyamorous and Demisexsual 
 
+
+<img width="764" height="230" alt="image" src="https://github.com/user-attachments/assets/4e8ef16a-0b35-4be7-9ef5-4a513fdbdead" />
+
+
 𓎢𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎡𓎢𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎡
 
 ✦  ;  ADHD  n  possible  PTSD,  but I'm not self diagnosing , schizophrenia, attachment issues, major huge overthinker nd high anger issues.
