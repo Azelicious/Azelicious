@@ -8,11 +8,12 @@
 Personality / If you approach me : I'll try to match your humor as much as possible. Im not really sensitive even when it comes to dark humor since i have that "I don't really care what you do, just don't do crimes“ mindset. I send random gifs/images/shit that happened to me to start convos! im bubbly and weirdly extroverted both irl and online, im also the therapist friend as you can talk to me about any of your problems, even if other people perceive it as “weird” 
 
 — IDENTITY
-my preferred pronouns are they/them/he/him/xe/xem ! although you can go with any BUT any female.
+my preferred pronouns are they/them/he/him/xe/xem ! although you can go with any BUT any female. [Non-binary/Genderfluid + Demiboy]
+Pansexsual / Polyamorous and Demisexsual 
 
 𓎢𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎡𓎢𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎡
 
-✦  ;  ADHD  n  possible  PTSD,  but I'm not self diagnosing 
+✦  ;  ADHD  n  possible  PTSD,  but I'm not self diagnosing , schizophrenia, attachment issues, major huge overthinker nd high anger issues.
 
 ✦  ;   I am an extremely softhearted  /  sensitive person, so I tend to easily get upset when I notice a slight change in the way you text .
 
@@ -27,10 +28,14 @@ my preferred pronouns are they/them/he/him/xe/xem ! although you can go with any
 ✦  I respect any ships, as long as it's not a darkship or something .
 
 ✦  ;  #1  Subspace / iTrapped kin  /  fan  .  I relate to them both a lot, so I prefer people seeing me as them .
+𓎢𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎡𓎢𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎡
+
+ ⇨ Nationality: Polish+German slightly czech + Russian?
 
 𓎢𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎡𓎢𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎡
 
 ✦  ;  int  :  anybody can freely int with me !! as long as they aren't problematic .
 
-✦  ;  dni  :  basic dni criteria ,  def not an excuse because I'm lazy to put everything else up
+✦  ;  dni  :  basic dni criteria ,  def not an excuse because I'm lazy to put everything else up , I DESLIKE People telling my past to others without my permission.  drama, rude people, p3d0ph¡les,r@c¡st people, toxic people, NSFW content, people mockning other religion's.
+
 
