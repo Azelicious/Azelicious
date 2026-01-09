@@ -34,7 +34,7 @@ atychiphobia ~ fear of failure , (subspace reference .. heh ) atelophobia ~ fear
 
 ✦  I respect any ships, as long as it's not a darkship or something .
 
-✦  ;  #1  Subspace / Shuriken / iTrapped kin  /  fan  .  I relate to them both a lot, so I prefer people seeing me as them . 
+✦  ;  #1  Subspace / Shuriken / iTrapped / 1x4 kin  /  fan  .  I relate to them both a lot, so I prefer people seeing me as them . 
 
 𓎢𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎡𓎢𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎡
 
@@ -69,5 +69,6 @@ TT: xyzz.of..sushichii
 
 𓎢𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎡𓎢𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎡
 
-<img width="764" height="230" alt="image" src="https://github.com/user-attachments/assets/6489453f-a4b5-41da-a633-cefac2874244" />
+<img width="867" height="257" alt="image" src="https://github.com/user-attachments/assets/ead57d14-079a-4b6e-8c7f-5382b87e4833" />
+
 
