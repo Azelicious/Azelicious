@@ -51,7 +51,7 @@ atychiphobia ~ fear of failure , (subspace reference .. heh ) atelophobia ~ fear
 
 ✦  Fandoms! : roblox args, forsaken, die of death, dandy's world, bad things, phighting, FNAF, Pupi's Midnight Munchies, Pizza Game, Mandela Catalogue, hwwhp , blocktales frozen soul , bungou stray dogs, Dragon ball, Regretevator, Block tales, The robloxia: Untill down,  Piggy (roblox), Tbhk (toilet bound hanako kun) 
 
-✦ favourite characters ﹕subspace !!  (phighting! ) , chance , twotime , 1x1x1x1 (from any fandom ) , itrapped , mafioso (fs aswell ) (forsaken ) , sean ^ ihasafacelulz (roblox args ) , skittles ^ thomas (hwwhp ) ^ definitely more but i can't think .
+✦ favourite characters ﹕subspace !! nd shuriken ! (phighting! ) , chance , twotime , 1x1x1x1 (from any fandom ) , itrapped , mafioso (fs aswell ) (forsaken ) , sean ^ ihasafacelulz (roblox args ) , skittles ^ thomas (hwwhp ) ^ definitely more but i can't think .
 
 𓎢𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎡𓎢𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎡
 
@@ -65,6 +65,5 @@ TT: xyzz.of..sushichii
 
 𓎢𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎡𓎢𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎡
 
- <img width="736" height="414" alt="image" src="https://github.com/user-attachments/assets/7e6ed324-378a-4284-bac9-7bc27527870c" />
-
+<img width="764" height="230" alt="image" src="https://github.com/user-attachments/assets/6489453f-a4b5-41da-a633-cefac2874244" />
 
