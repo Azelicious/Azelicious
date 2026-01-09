@@ -28,13 +28,13 @@ atychiphobia ~ fear of failure , (subspace reference .. heh ) atelophobia ~ fear
 
 ✦ I'm oblivious as hell when it comes to jokes but if any of them makes you uncomfortable, please let me know !!
 
-✦ I don't tolerate any romantic jokes, I'll let it slide mainly if it's my partner . but close oomfs are kinda an exception ??
+✦ I don't tolerate any romantic jokes, I'll let it slide mainly if it's my partner ( im single so close oomfs have free will ig?) . but close oomfs are always kinda an exception ??
 
 ✦ I'm the type of person who would stay up till the next morning just for my fav person to text me, if you see me online at a very late time  **hi.**
 
 ✦  I respect any ships, as long as it's not a darkship or something .
 
-✦  ;  #1  Subspace / Shuriken / iTrapped / 1x4 kin  /  fan  .  I relate to them both a lot, so I prefer people seeing me as them . 
+✦  ;  #1  Subspace / Shuriken / iTrapped / 1x4 kin  /  fan  .  I relate to them a lot, so I prefer people seeing me as them . 
 
 𓎢𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎡𓎢𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎡
 
